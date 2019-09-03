@@ -1,0 +1,1 @@
+# SOLUCION-Crea-el-estilo-adaptativa-porcentaje-1-con-ancho-de-70-para-la-imagen-del-primer-art-culo.
